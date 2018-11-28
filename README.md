@@ -1,1 +1,0 @@
-# yildirimyusufyasin.github.io
